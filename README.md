@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jianaaaa
-- 👀 I’m interested in anime, 2d men, readind
+- 👀 I’m interested in anime, 2d men, reading
 - 🌱 I’m currently learning to speak japanese
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me = dont :)
